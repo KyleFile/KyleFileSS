@@ -1,5 +1,3 @@
-Kyle Minicucci
-
 9/13/2024
 
 
